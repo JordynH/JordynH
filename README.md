@@ -1,1 +1,1 @@
-![](https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif)
+![](https://media3.giphy.com/stickers/nostalgia-bling-3ohhwutQL0CDTq3kKA/giphy.gif)
